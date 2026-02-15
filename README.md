@@ -1,6 +1,9 @@
 <p align="center">
   <img src="https://qph.cf2.quoracdn.net/main-qimg-1ff13c43a01902518e60b6b069a7e6fc" width="1000" alt="Strawberries">
 
+  ![](https://komarev.com/ghpvc/?username=AmysBakingShow&color=ff69b4)
+
+
 ![](https://i.pinimg.com/1200x/76/8d/52/768d523943f1120bb356acc54f9cc03b.jpg)
 
 <p align="center">
