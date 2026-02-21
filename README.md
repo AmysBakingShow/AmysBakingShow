@@ -57,9 +57,9 @@ Sonknux
  ![](https://i.pinimg.com/originals/f6/26/f4/f626f426b70147a17985c91c545709a6.gif)
 
 
-I am also a HUGE Amy Kin RAHHHHHH I LOVE HER SO MUUUUUUUUUUUUUUUCH (SONIC TOO GIGGLES)
+I am also a HUGE Amy Kin RAHHHHHH I LOVE HER SO MUUUUUUUUUUUUUUUCH (SONIC TOO GIGGLES) I guess you can say I'm a Sonic and Amy Main :3 
 
-Thank You For Reading! Make sure to Sign My Ata! <3
+And thats All! Thank You For Reading! Make Sure to Sign My Ata and Check Out My Rentry! <3
 
 <p align="center">
   <img src="https://media.tenor.com/xd9jqhQBJwAAAAAi/strawberry-shortcake-gif.gif" width="1000" alt="Strawberry Shortcake">
