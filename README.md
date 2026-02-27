@@ -51,11 +51,15 @@ Sonamy (HEAVY SHIP)
 Metamy
 Sonadow 
 Sonilver
-Sonexe
+Sonexe (2nd HEAVY SHIP)
 Surgamy
 Metadow
 Sonknux
-
+Metadow
+Espilver
+Vectilla 
+Sonaze
+Metadow
 <p align="center">
   
  ![](https://i.pinimg.com/originals/f6/26/f4/f626f426b70147a17985c91c545709a6.gif)
