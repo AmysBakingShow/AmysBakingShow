@@ -30,6 +30,7 @@ Keep in mind that ive been copied 10 times and im kinda really sick of people tr
 Amy Rose (STH)
 Sonic The Hedgehog (STH)
 Shadow The Hedgehog (STH)
+Cream The Rabbit (STH)
 Fluttershy (MLP)
 Pinkie Pie (MLP)
 Sylveon (PKMN)
@@ -37,6 +38,9 @@ My Melody (Sanrio)
 Shadow Bonnie (FNAF)
 Golden Freddy (FNAF)
 Chica The Chicken (FNAF)
+Catnap (PPT)
+Dogday (PPT)
+Happy Hopscotch (PPT)
 
 ⋆⭒˚.⋆Ships I Love/Like⋆⭒˚.⋆
 
