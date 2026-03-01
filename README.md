@@ -44,22 +44,22 @@ Happy Hopscotch (PPT)
 
 ⋆⭒˚.⋆Ships I Love/Like⋆⭒˚.⋆
 
-Shadouge
-Taiream
-Silvaze
+Shadouge (Love)
+Shadamy (Like)
+Taiream (Love)
+Silvaze (Love)
 Sonamy (HEAVY SHIP)
-Metamy
-Sonadow 
-Sonilver
+Metamy (Love)
+Sonadow (Like)
+Sonilver (Like)
 Sonexe (2nd HEAVY SHIP)
-Surgamy
-Metadow
-Sonknux
-Metadow
+Surgamy (Like)
+Metadow (Like)
+Sonknux (Like)
 Espilver
-Vectilla 
-Sonaze
-Metadow
+Vectilla (Love)
+Sonaze (Like)
+
 <p align="center">
   
  ![](https://i.pinimg.com/originals/f6/26/f4/f626f426b70147a17985c91c545709a6.gif)
