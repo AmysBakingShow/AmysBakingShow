@@ -81,7 +81,7 @@ I am also a HUGE Amy Kin RAHHHHHH I LOVE HER SO MUUUUUUUUUUUUUUUCH (SONIC TOO GI
 
 Live Love Sonic, Shadow, Amy, Cream, Rouge, Vector, Silver, Blaze, Vanilla, Tails and Pace and Rosy and Scourge and Sally and Honey and Whisper and Tangle and Metal Sonic and Metal Amy and Eimy and Manic and Sonia did i already say Amy? 
 
-Long Live Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Did i already say Sonamy?
+Long Live Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Sonamy Did i already mention Sonamy?
 And thats All! Thank You For Reading! Make Sure to Sign My Ata and Check Out My Rentry! <3
 
 <p align="center">
