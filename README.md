@@ -53,25 +53,32 @@ Catnap (PPT)
 Dogday (PPT)
 Hoppy Hopscotch (PPT)
 
-⋆⭒˚.⋆Ships I Love/Like⋆⭒˚.⋆
+⋆⭒˚.⋆Ships I Love⋆⭒˚.⋆
 
-Shadouge (Love)
-Shadamy (Like)
-Taiream (Love)
-Silvaze (Love)
+Shadouge 
+Taiream 
+Silvaze 
 Sonamy (HEAVY SHIP)
-Metamy (Love)
-Sonadow (Like)
-Sonilver (Like)
-Sonexe (2nd HEAVY SHIP)
-Surgamy (Like)
-Metadow (Like)
-Sonknux (Like)
-Espilver
-Vectilla (Love)
-Sonaze (Like)
-Jetave (Love)
+Metamy   
+Sonexe (HEAVY SHIP)
+Vectilla 
+Jetave 
+Pacsy
+Malwrite
+Cyclops x GM
 
+⋆⭒˚.⋆Ships I Like⋆⭒˚.⋆
+Sonilver
+Metadow
+Sonaze
+Surgamy
+Sonknux
+Shadamy
+Sonadow
+Blazamy
+Espilver
+Sonally
+Knuxouge
 <p align="center">
   
  ![](https://i.pinimg.com/originals/f6/26/f4/f626f426b70147a17985c91c545709a6.gif)
