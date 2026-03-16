@@ -52,6 +52,8 @@ Brud (SPRUNKI)
 Catnap (PPT)
 Dogday (PPT)
 Hoppy Hopscotch (PPT)
+Flaky (HTF)
+Cuddles (HTF)
 
 ⋆⭒˚.⋆Ships I Love⋆⭒˚.⋆
 
