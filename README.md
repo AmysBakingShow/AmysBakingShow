@@ -54,6 +54,8 @@ Dogday (PPT)
 Hoppy Hopscotch (PPT)
 Flaky (HTF)
 Cuddles (HTF)
+Leafy (BFDI)
+Firey (BFDI)
 
 ⋆⭒˚.⋆Ships I Love⋆⭒˚.⋆
 
