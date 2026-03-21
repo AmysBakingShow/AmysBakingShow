@@ -56,6 +56,17 @@ Flaky (HTF)
 Cuddles (HTF)
 Leafy (BFDI)
 Firey (BFDI)
+Felix The Cat
+Oswald The Lucky Rabbit
+MOTM Felix
+MOTM Sonic
+MOTM Oswald/Ozzy
+Peach (SMB)
+Bowser (SMB)
+Mario (SMB)
+Yoshi (SMB)
+Uzi (MD)
+N (MD)
 
 ⋆⭒˚.⋆Ships I Love⋆⭒˚.⋆
 
