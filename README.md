@@ -98,6 +98,7 @@ Knuxouge
   
  ![](https://i.pinimg.com/originals/f6/26/f4/f626f426b70147a17985c91c545709a6.gif)
 
+![](https://64.media.tumblr.com/54fda4c46aa15243e6a8eef38b7ba3e9/fc082b992ca2b0e7-0d/s1280x1920/9a700475314ca786a9d4195d3fb6c04172b16cbf.gif)
 
 I am also a HUGE Amy Kin RAHHHHHH I LOVE HER SO MUUUUUUUUUUUUUUUCH (SONIC TOO GIGGLES) I guess you can say I'm a Sonic and Amy Main :3 
 
