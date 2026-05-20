@@ -23,7 +23,7 @@ C+H is Welcomed! I Don't mind if you cuddle me! <3
 
 I'm a HUGE Sonamy fan so if you see me yapping about sonamy 24/7 then im so sorry i cant help myself... I LOVE THEM SO MUCH LIKE PLEASE THEYRE MY BBYS GIGGLES!! I love making new friends so dont be afraid to approach me even though im sorta weird haha! if i make you uncomfortable then please lmk so ill stop! I also play roblox so if you play Sonic Speed Simulator, Fnaf RPs, Tycoons, Pokemon, Sonic TD, Sonic OM then feel free to add me! 
 
-Keep in mind that ive been copied 10 times and im kinda really sick of people trying to take my style (specifically my amy skins) so if i see you copying MY amy skins i will block and hide you.
+Keep in mind that ive been copied 10 times and im kinda really sick of people trying to take my style (specifically my amy skins) so if i see you copying i will block and hide you.
 
 ⋆⭒˚.⋆Characters that i Kin⋆⭒˚.⋆
 
