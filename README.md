@@ -110,3 +110,12 @@ And thats All! Thank You For Reading! Make Sure to Sign My Ata and Check Out My 
 <p align="center">
   <img src="https://media.tenor.com/xd9jqhQBJwAAAAAi/strawberry-shortcake-gif.gif" width="1000" alt="Strawberry Shortcake">
 </p>
+
+This is me and bf if you care <3
+
+<p align="center">
+  
+<img width="204" height="213" alt="image" src="https://github.com/user-attachments/assets/939bb5c4-eba5-438a-ba08-bc91ff748144" />
+  <img width="189" height="208" alt="image" src="https://github.com/user-attachments/assets/d573fb90-2231-4627-8e01-2fa2b924a864" />
+
+</p>
