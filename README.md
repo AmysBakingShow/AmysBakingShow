@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">  
-Amy | Ames | Amelia | Genesis | Gen | Genny | 21 | Single | Amy and Sonic Kin | #1 Sonamy Fan
+Amy | Ames | Amelia | Genesis | Gen | Genny | 21 | Single | Sonic and Amy Kin | #1 Sonamy Fan
 
 <p align="center">
   <img src="https://qph.cf2.quoracdn.net/main-qimg-19ecf036c4d6e8a73808f9ba88d4579a" width="1000" alt="Strawberry Shortcake">
